@@ -1,1 +1,1 @@
-# MyTest
+This was a writing exercise I started doing when I was 24 years old. I had just graduated from Columbia College Chicago with a degree in fiction writing, and I was determined to make writing my full-time career. I asked myself where I should begin writing on the internet to build my name and personal brand as a writer/author, and that’s when I stumbled onto a site called Quora.
